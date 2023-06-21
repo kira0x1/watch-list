@@ -1,0 +1,39 @@
+- [x] Schindler's Listx 🥇 **[9.5]** 🥇
+- [x] alien prometheus -> covenantx** [7.8/ 7]**
+- [ ] The Shawshank Redemption
+- [x] Interstellarx **[8.7]**
+- [x] Annihilationx **[6.5]**
+- [x] Revenantx** [6.2]**
+- [ ] prospect
+- [ ] Infinity war -> End Game
+- [ ] GreenBook
+- [ ] The Last of Us Series **[🏆 Episode 3: 10 🏆]**
+- [x] The Menux **[6.7]**
+- [ ] Mad Max: fury road
+- [ ] Planet of the Apes Trilogy
+- [ ] The Land Before Time
+- [x] Nopex **[7.5]**
+- [x] Sicario -> Sicario: day of the soldadox **[8 / 7.5]**
+- [x] American history Xx **[7]**
+- [x] licorice pizzax **[4]**
+- [x] Jarheadx** [8.5]**
+- [x] The hurt lockerx **[7]**
+- [x] Save private Ryanx **[8]**
+- [x] 1917x **[8]**
+- [x] a shock to the systemx **[7.2]**
+- [ ] The whale
+- [ ] Dungeons and dragons: honor among thieves
+- [ ] Pulp Fiction
+- [x] Reservoir dogsx **[7.6]**
+- [x] The hateful 8x **[8]** **(Great who dunnit)**
+- [x] Django Unchained x **[8.5]**
+- [ ] Once upon a time in Hollywood
+- [x] 2001: A Space Odysseyx **[5.1]\*** - Last 30 min: **\*[8]**
+- [x] Trial of the chicago 7 x**[8.3]**
+- [x] Die Hardx **[7]** great christmas movie
+- [ ] There will be blood
+- [x] Uncut gemsx **[8]**
+- [ ] The Pianist
+- [ ] Grand Budapest Hotel
+- [x] looking for alibrandix **[4]**
+- [ ] Pirates of the Caribbean Saga
